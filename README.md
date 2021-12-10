@@ -3,6 +3,9 @@ Pancake sniper bot -Trade in Real time with huge PROFIT Via Pancakeswap sniper b
 Tired of not being able to catch up Gems because it's already pumped😥?
 
 We got your back!
+**
+See how its work : **
+https://youtu.be/wi3V2xK-4EA
 
 We are in Timesniperbot.shop developer of Sniping Bots that worked on various network such as BSC, ERC .
 
