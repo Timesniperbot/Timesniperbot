@@ -39,7 +39,7 @@ Our Sniping bot products :
 Vip Panckae Sniper Bot
 Pro Panckae Sniper Bot
 Basic Panckae Sniper Bot
-https://timesniperbot.shop/shop/
+https://Pancakesniperbot.me/shop/
 
 Contact Us :
 
