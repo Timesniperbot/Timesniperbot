@@ -5,14 +5,15 @@ Tired of not being able to catch up Gems because it's already pumped😥?
 We got your back!
 **
 See how its work : **
-https://youtu.be/wi3V2xK-4EA
+https://www.youtube.com/watch?v=cBaz_4lBvx0&t
 
 We are in Timesniperbot.shop developer of Sniping Bots that worked on various network such as BSC, ERC .
 
 We all know that being early in the good project is a must, to maximize the profit.
 Better invest in tools that you need rather than losing your money because you are getting rekt by Sniper Bot Users.
 
-How its work :
+How its work : 
+https://www.youtube.com/watch?v=cBaz_4lBvx0&t
 Watch video
 🔰Why you should choosing us And what is the advantage of our pancake bot?
 
@@ -42,6 +43,8 @@ Our Sniping bot products :
 Vip Panckae Sniper Bot
 Pro Panckae Sniper Bot
 Basic Panckae Sniper Bot
+https://Pancakesniperbot.me/
+
 https://Pancakesniperbot.me/shop2/
 
 Contact Us :
